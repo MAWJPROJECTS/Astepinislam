@@ -1,4 +1,4 @@
-
+# خطوة في الاسلام Astep in islam Privacy Policy 
 Privacy Policy
 
 built the خطوة في الاسلامAstep in islam app as a Free app. This SERVICE is provided by at no cost and is intended for use as is.
